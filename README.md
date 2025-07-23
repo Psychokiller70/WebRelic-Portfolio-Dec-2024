@@ -25,5 +25,3 @@ If you want to get in touch or ask about my current projects, feel free to reach
 
 ---
 
-Thank you for visiting! 🙏
-
